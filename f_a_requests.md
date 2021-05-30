@@ -1,0 +1,1 @@
+- Raise funds through community donated NFT's
